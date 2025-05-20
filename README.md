@@ -1,1 +1,1 @@
-# Maa-initiative
+A thriving Maasai community empowered by education, equitable healthcare, and sustainable economic opportunities. 
